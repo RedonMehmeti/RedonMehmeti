@@ -7,7 +7,7 @@
 
 - 🌱 I’m currently learning **nodeJs**
 
-- 💬 Ask me about **Ask me about about anything, If i can help you a am happy (;**
+- 💬**Ask me about about anything, If i can help you a am happy (;**
 
 - 📫 How to reach me **redonmehmeti2019@gmail.com**
 
